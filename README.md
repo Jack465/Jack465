@@ -1,4 +1,4 @@
-### Hi there 👋
+### Finish this preview. detail some projects or something.
 
 <!--
 **Jack465/Jack465** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
